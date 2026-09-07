@@ -1,2 +1,2 @@
-# yoga.github.io
+# yoga720p.github.io
 Mapel SIJdA
